@@ -1,0 +1,1 @@
+# Seminarkurs2026.github.io
